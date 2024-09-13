@@ -1,0 +1,8 @@
+- Hi, I’m @danaalakail *:･ﾟ✧*:･ﾟ✧
+- I'm a second-year Cyber Security student
+- I am driven by a profound interest in programming, cyber/information security, and ethical hacking.
+- I am gaining proficiency in various programming languages and security protocols through coursework and hands-on experience, such as Harvard’s CS50 program.
+- I was also one of 200 young women around the kingdom to have gotten accepted into the Tuwaiq Apple Developer Program.
+- Dedicated to staying current with emerging technologies, I actively seek opportunities to grow my expertise
+- i am excited to contribute to the dynamic field of cyber security.
+- *:･ﾟ✧*:･ﾟ✧
